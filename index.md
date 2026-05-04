@@ -1,4 +1,8 @@
+![Majuu254 Magazine Banner](scripts_and_data/banner.png)
+
 # The Majuu254 Magazine
+
+**Publication Date: May 2026**
 
 Welcome to the **Majuu254 Magazine**—your ultimate, community-driven guide to navigating life, work, and opportunities abroad and online. We’ve curated the most valuable stories, hacks, and warnings shared by Kenyans out there grinding, and packaged them into an engaging, easy-to-read format.
 
