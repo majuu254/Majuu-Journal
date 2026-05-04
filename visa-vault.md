@@ -10,31 +10,31 @@ Getting that visa is often the hardest part of the journey. In this chapter, we 
 
 Kupata I-20 ya Community College (CC) ni the ultimate hack juu you don't need bank statement ya 5M Kshs. The primary takeaway from the community is this: Hapa ndio unatumia the "2+2 Transfer" Hack.
 
-*Engagement: 🔼 91 | 💬 16 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rl440p/us_student_visa_hack_how_to_get_admission_without/)
+**Engagement:** 🔼 91 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rl440p/us_student_visa_hack_how_to_get_admission_without/)
 
 ### Embassy Psychology 101
 
 Having navigated the US immigration system myself, let me tell you a secret: The Consular Officer (CO) decides your fate in the first 30 seconds. The primary takeaway from the community is this: By US law, they must assume you are an intending immigrant.
 
-*Engagement: 🔼 20 | 💬 10 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rreosr/embassy_psychology_101/)
+**Engagement:** 🔼 20 | 💬 10 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rreosr/embassy_psychology_101/)
 
 ### Your Ticket to Germany: Apply Afrika Kommt before March 22 Deadline!
 
 If you are a professional in Kenya with a university degree and 2 to 5 years of experience, this is the most prestigious and legitimate pathway to Germany. The primary takeaway from the community is this: All applications must be submitted through the online portal by March 22, 2026, at 23:59 CET.
 
-*Engagement: 🔼 19 | 💬 7 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rvw9wr/your_ticket_to_germany_apply_afrika_kommt_before/)
+**Engagement:** 🔼 19 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rvw9wr/your_ticket_to_germany_apply_afrika_kommt_before/)
 
 ### Siri ya Bank Statement
 
 https://preview.redd.it/15zx46u20fhg1.png?width=680&amp;format=png&amp;auto=webp&amp;s=c2b0f31523bf95fc61240757b0cac8b4d08d80f2 Ikifika story za majuu, people only focus on school fees na tiko but wanasahau Bank Statement. The primary takeaway from the community is this: Advice yangu:  Kama huna doh, anza kujenga "history" ya account mapema kama Vision 2030.
 
-*Engagement: 🔼 13 | 💬 6 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qvg5sl/siri_ya_bank_statement/)
+**Engagement:** 🔼 13 | 💬 6 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qvg5sl/siri_ya_bank_statement/)
 
 ### Relocating Process
 
 Can someone explain to me like you're explaining to Oscar Sudi the process of relocating, so I'm 26 years old, Male, a graduate of economics and finance a 2:1 equivalent for those who understand, and I'm very much interested in trying a new country particularly English-speaking country either UK, Australia or Canada. The primary takeaway from the community is this: One term ziko zote!!
 
-*Engagement: 🔼 8 | 💬 9 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t1spnh/relocating_process/)
+**Engagement:** 🔼 8 | 💬 9 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t1spnh/relocating_process/)
 
 <details>
 <summary><b>📚 View Additional Threads on Proof of Funds & Banking (4 posts)</b></summary>
@@ -55,31 +55,31 @@ Can someone explain to me like you're explaining to Oscar Sudi the process of re
 
 This is Benson Gitau alikuwa anawork as a security guard in Nairobi up until 2011 when aliwin a green card. The primary takeaway from the community is this: He's just one of many success stories.
 
-*Engagement: 🔼 164 | 💬 59 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1spjajo/apply_for_that_green_card_jaribu_bahati_yako/)
+**Engagement:** 🔼 164 | 💬 59 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1spjajo/apply_for_that_green_card_jaribu_bahati_yako/)
 
 ### Green card (DV Lottery )update
 
 As you know last year the lottery (DV 2027) haikuhappen juu ya the pause 'to make some changes.' After the long wait finally hii week tumepata an update na hizi ndizo changes to expect;  1. The primary takeaway from the community is this: Kuna a proposed $1 entry fee though bado haiko confirmed.(Very likely itakuwa) Lottery dates za DV 2027 bado hazijakuwa confirmed but the rules zitatake into effect April 10 so mkae rada.
 
-*Engagement: 🔼 65 | 💬 23 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsm1hb/green_card_dv_lottery_update/)
+**Engagement:** 🔼 65 | 💬 23 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsm1hb/green_card_dv_lottery_update/)
 
 ### What changed -US
 
 Tangu that guy aingie Whitehouse kuingia US imekuwa ngumu especially for two major ways wakenya huingia pale;       •Truck drivers - visa issuance kwa truck drivers ilikuwa put on pause. The primary takeaway from the community is this: Walisema the shooter alifika US kama lottery winner so wakapause io program Whether the reasons ni genuine sijui, what I know ni wamezitumia kupause the programs.
 
-*Engagement: 🔼 19 | 💬 17 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsc1yq/what_changed_us/)
+**Engagement:** 🔼 19 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsc1yq/what_changed_us/)
 
 ### Kaa Bado Unadeal na Nyayo House Passport Cartels, Ni Juu Hujajua Hujui
 
 Form ya kuingia majuu inaanzia Nyayo House. The primary takeaway from the community is this: Docs Zikuwe Rada: Make sure majina kwa ID na birth cert zina-match perfectly.
 
-*Engagement: 🔼 14 | 💬 3 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rb4o9d/kaa_bado_unadeal_na_nyayo_house_passport_cartels/)
+**Engagement:** 🔼 14 | 💬 3 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rb4o9d/kaa_bado_unadeal_na_nyayo_house_passport_cartels/)
 
 ### Any time from now - Green card/DV Lottery
 
 The proposed changes(https://www.reddit.com/r/Majuu254/comments/1rsm1hb/green_card_dv_lottery_update/?utm_source=share&amp;utm_medium=web3x&amp;utm_name=web3xcss&amp;utm_term=1&amp;utm_content=share_button) to green card/DV lottery application took into effect jana. The primary takeaway from the community is this: stay tuned.
 
-*Engagement: 🔼 14 | 💬 4 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sic1ov/any_time_from_now_green_carddv_lottery/)
+**Engagement:** 🔼 14 | 💬 4 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sic1ov/any_time_from_now_green_carddv_lottery/)
 
 <details>
 <summary><b>📚 View Additional Threads on Fast-Tracks & Amnesties (5 posts)</b></summary>
@@ -101,31 +101,31 @@ The proposed changes(https://www.reddit.com/r/Majuu254/comments/1rsm1hb/green_ca
 
 Umekuwa Ukidai Connection. The primary takeaway from the community is this: US Student Visa Hack(https://www.reddit.com/r/Majuu254/s/7alKp8pGUG) 22.
 
-*Engagement: 🔼 100 | 💬 14 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rb7dfw/umekuwa_ukidai_connection_sasa_list_ndio_hii/)
+**Engagement:** 🔼 100 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rb7dfw/umekuwa_ukidai_connection_sasa_list_ndio_hii/)
 
 ### Kuingiza Laptop/Tech kutoka Majuu Bila Kuoshwa na KRA
 
 Umeget remote job na sasa unahitaji comp, but kununua Mac ama ThinkPad hapa Kanairo ni kulipa Zakayo tax ya 40% extra. The primary takeaway from the community is this: Cheza system ama system ikucheze ✊!
 
-*Engagement: 🔼 90 | 💬 26 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rfvcgu/kuingiza_laptoptech_kutoka_majuu_bila_kuoshwa_na/)
+**Engagement:** 🔼 90 | 💬 26 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rfvcgu/kuingiza_laptoptech_kutoka_majuu_bila_kuoshwa_na/)
 
 ### Kufanya waks "chini ya maji" on a student visa ni kucheza na moto ya ICE.
 
 Kama uko huku on F-1 Visa, unajua umeruhusiwa ku-work 20 hours tu on-campus (unless uko na work permit (EAD)). The primary takeaway from the community is this: Don't risk your whole future for an extra $500.
 
-*Engagement: 🔼 51 | 💬 16 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsb8ir/kufanya_waks_chini_ya_maji_on_a_student_visa_ni/)
+**Engagement:** 🔼 51 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rsb8ir/kufanya_waks_chini_ya_maji_on_a_student_visa_ni/)
 
 ### Wachana na Come We Stay. Put a Ring on It Ndio Mtoke Block Pamoja 💍✈️
 
 Wacha kufund relocation ya mpoa wako wa "come we stay" pale Roysambu na verbal promises za "I'll come back for you."  Mtalia JKIA ma-goodbye, alafu after 6 months majuu anaanza kuku-ghost. The primary takeaway from the community is this: Wachana na tears, cheza kama wewe   and make it official.
 
-*Engagement: 🔼 42 | 💬 12 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rd0h6m/wachana_na_come_we_stay_put_a_ring_on_it_ndio/)
+**Engagement:** 🔼 42 | 💬 12 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rd0h6m/wachana_na_come_we_stay_put_a_ring_on_it_ndio/)
 
 ### I am a Kenyan student moving to Germany next week for my PhD (and I survived the outsourced Visa process). AMA!
 
 Hey r/Majuu254 mbogi! The primary takeaway from the community is this: I decided to do this AMA because the visa application process was incredibly confusing (especially since the embassy outsources it) and there were a lot of hidden costs they don't warn you about upfront.
 
-*Engagement: 🔼 36 | 💬 60 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rh5ei6/i_am_a_kenyan_student_moving_to_germany_next_week/)
+**Engagement:** 🔼 36 | 💬 60 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rh5ei6/i_am_a_kenyan_student_moving_to_germany_next_week/)
 
 <details>
 <summary><b>📚 View Additional Threads on Student Visas & Pathways (11 posts)</b></summary>
@@ -153,31 +153,31 @@ Hey r/Majuu254 mbogi! The primary takeaway from the community is this: I decided
 
 Kenyan rugby player Joshua Weru amekuwa the first Kenyan and East African to join the NFL through the NFL IPP program after kusign with the Philadelphia Eagles. It's just so nice to see Kenyans make it on a global stage.
 
-*Engagement: 🔼 279 | 💬 20 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sx5jq2/joshua_weru_drafted_into_the_nfl/)
+**Engagement:** 🔼 279 | 💬 20 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sx5jq2/joshua_weru_drafted_into_the_nfl/)
 
 ### VISA DENIAL!!
 
 How was your experience at TLS after receiving thàt email?? The primary takeaway from the community is this: Someone can just vent out their frustration as well as inform others on the best way to go about things.
 
-*Engagement: 🔼 225 | 💬 73 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rp0rbe/visa_denial/)
+**Engagement:** 🔼 225 | 💬 73 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rp0rbe/visa_denial/)
 
 ### Haitians Block Kenyan Police from leaving
 
 Despite being commissioned to please the Yues the MSS might have achieved something because the Haitians, mostly in Central Haiti, blocked roads ndio polisi wasitoke huko and evacuation had to be done by Helicopters. It's good to see that they feel safe with Kenyan police around but guess who doesn't, the Kenyan Citizen.
 
-*Engagement: 🔼 209 | 💬 40 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sqla6p/haitians_block_kenyan_police_from_leaving/)
+**Engagement:** 🔼 209 | 💬 40 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sqla6p/haitians_block_kenyan_police_from_leaving/)
 
 ### Final Kenyan Police Batch Returns Home From Haiti Mission
 
 After 22 months, jana at 1838 hrs KQ flight carrying the last batch of police from Haiti landed pale JKIA marking an end to the MSS program
 
-*Engagement: 🔼 91 | 💬 28 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1synswu/final_kenyan_police_batch_returns_home_from_haiti/)
+**Engagement:** 🔼 91 | 💬 28 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1synswu/final_kenyan_police_batch_returns_home_from_haiti/)
 
 ### Wacha Kutupa Kshs 40K: The Cheat Code to Passing IELTS &amp; TOEFL on Your First Try
 
 Unasoma English for 12 years lakini bado lazima ulipe 40K (IELTS) or 30K (TOEFL) to prove it. The primary takeaway from the community is this: Here is exactly how to prepare and pass on day one without paying for expensive tutors:  Book the Computer Test: NEVER do paper test!
 
-*Engagement: 🔼 56 | 💬 11 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1re35hz/wacha_kutupa_kshs_40k_the_cheat_code_to_passing/)
+**Engagement:** 🔼 56 | 💬 11 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1re35hz/wacha_kutupa_kshs_40k_the_cheat_code_to_passing/)
 
 <details>
 <summary><b>📚 View Additional Threads on Traps, Denials & Deportation (36 posts)</b></summary>
@@ -230,31 +230,31 @@ Unasoma English for 12 years lakini bado lazima ulipe 40K (IELTS) or 30K (TOEFL)
 
 Ukitaka kutravel anywhere whether ni business or pleasure, kitu ya kwanza you do ni kuresearch the place. The primary takeaway from the community is this: Ni watu wangapi wanaona hizo advisories na wanadecide not to travel to Kenya because wanadhani si safe for them?
 
-*Engagement: 🔼 37 | 💬 34 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rpvq3o/kenya_as_a_travel_destination/)
+**Engagement:** 🔼 37 | 💬 34 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rpvq3o/kenya_as_a_travel_destination/)
 
 ### Majuu Si West Pekee: The 2 Verified Portals for High-Paying Expat Jobs in Africa.
 
 Tumeongea sana about the US and Europe, but Western visa backlogs zinachokesha. The primary takeaway from the community is this: UNV Portal (The UN Stepping Stone)  Link: app.unv.org(https://app.unv.org/) (United Nations Volunteers)  Focus: Don't let the word "Volunteer" fool you.
 
-*Engagement: 🔼 34 | 💬 7 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rdl0s9/majuu_si_west_pekee_the_2_verified_portals_for/)
+**Engagement:** 🔼 34 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rdl0s9/majuu_si_west_pekee_the_2_verified_portals_for/)
 
 ### Kutoana Ujinga: Reddit Part II - Mbona Post Yako Inakaa Jangwa Bila Maoni?
 
 Jana niliwachanua na Part I(https://www.reddit.com/r/Majuu254/comments/1s3ws4q/kutoana_ujinga_do_you_actually_know_how_the/). The primary takeaway from the community is this: Hata kama ni meme, iweke uitumie kama "hook."
 
-*Engagement: 🔼 24 | 💬 13 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s4s5b9/kutoana_ujinga_reddit_part_ii_mbona_post_yako/)
+**Engagement:** 🔼 24 | 💬 13 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s4s5b9/kutoana_ujinga_reddit_part_ii_mbona_post_yako/)
 
 ### FIFA Worldcup 2026- What you need to know
 
 Kama you plan on attending the FIFA here's a few things unafaa kujua; ■ US iko na  'FIFA PASS' meaning if you kama uko na a FIFA World Cup 26 ticket your visa interview will be prioritized. The primary takeaway from the community is this: ■ Canadian visa is a standalone so you need to apply.
 
-*Engagement: 🔼 22 | 💬 9 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sss3pt/fifa_worldcup_2026_what_you_need_to_know/)
+**Engagement:** 🔼 22 | 💬 9 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sss3pt/fifa_worldcup_2026_what_you_need_to_know/)
 
 ### US Citizenship Approvals Hit Record Lows
 
 naturalization approvals dropped sharply to 32,862 in early 2026, a record low. The primary takeaway from the community is this: Kaa unaenda interview, take your time to prepare usianguke iyo exam.
 
-*Engagement: 🔼 20 | 💬 9 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1st8pod/us_citizenship_approvals_hit_record_lows/)
+**Engagement:** 🔼 20 | 💬 9 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1st8pod/us_citizenship_approvals_hit_record_lows/)
 
 <details>
 <summary><b>📚 View Additional Threads on General Visa Discussions (11 posts)</b></summary>

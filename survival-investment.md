@@ -10,31 +10,31 @@ Getting abroad is just step one. The real challenge is thriving in a new culture
 
 At the  Infrastructure summit in Nairobi, Dangote alisema he can replicate the 650,000 barrels a day refinery he built in Lagos hapa East Africa. The primary takeaway from the community is this: Hii ni good news but did you know Kenya has a refinery (though ni ndogo) which is currently used kama storage facility ya mafuta.
 
-*Engagement: 🔼 52 | 💬 28 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1su5x3u/aliko_dangote_pledges_to_build_a_refinery_in_east/)
+**Engagement:** 🔼 52 | 💬 28 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1su5x3u/aliko_dangote_pledges_to_build_a_refinery_in_east/)
 
 ### Diaspora Remmitaces to Kenya hit Ksh.58.1Billion
 
 Everyone anaongelea the record high remmitances in March from kenyans abroad. How much of that money was investment into the economy au was it just funding for some people's lifestyles.
 
-*Engagement: 🔼 45 | 💬 17 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1spry7m/diaspora_remmitaces_to_kenya_hit_ksh581billion/)
+**Engagement:** 🔼 45 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1spry7m/diaspora_remmitaces_to_kenya_hit_ksh581billion/)
 
 ### The "I’m moving back home in 5 years" lie we tell ourselves every single year.
 
 Every Kenyan I meet hapa Yues anasemanga ati "I’m just here to make capital, in 5 years ninarudi Kenya ku-start business."  Bro, umekuwa ukisema hio line tangu sijui 2015! The primary takeaway from the community is this: Who has finally accepted their fate?
 
-*Engagement: 🔼 42 | 💬 29 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rre50l/the_im_moving_back_home_in_5_years_lie_we_tell/)
+**Engagement:** 🔼 42 | 💬 29 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rre50l/the_im_moving_back_home_in_5_years_lie_we_tell/)
 
 ### Character Development: Vile neighbor mzungu alidhani Oti anafanya "Satanic Ritual" juu ya backyard chinjo 🐐
 
 Nilikutana na Oti (Otieno) Kanairo after high school, tuka-link tena Majuu tukiwa tech. The primary takeaway from the community is this: Kaa rada, usilete shagz logic kwa suburbs ujipate ndani!
 
-*Engagement: 🔼 37 | 💬 7 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rwp1fe/character_development_vile_neighbor_mzungu/)
+**Engagement:** 🔼 37 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rwp1fe/character_development_vile_neighbor_mzungu/)
 
 ### 5,000 Members: The 48th County is Growing! 🎉
 
 Wakuu, we just hit the 5K mark! The primary takeaway from the community is this: Onwards to 10k!
 
-*Engagement: 🔼 30 | 💬 6 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sa77ya/5000_members_the_48th_county_is_growing/)
+**Engagement:** 🔼 30 | 💬 6 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sa77ya/5000_members_the_48th_county_is_growing/)
 
 <details>
 <summary><b>📚 View Additional Threads on Real Estate & Investments (12 posts)</b></summary>
@@ -63,31 +63,31 @@ Wakuu, we just hit the 5K mark! The primary takeaway from the community is this:
 
 I met a guy at a cyber café in 2019. The primary takeaway from the community is this: One day I asked, “What are you always working on?” He smiled and said, “I’m applying for jobs abroad.
 
-*Engagement: 🔼 213 | 💬 31 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s7ivqf/dont_give_up/)
+**Engagement:** 🔼 213 | 💬 31 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s7ivqf/dont_give_up/)
 
 ### The Side Hustles Diaspora Guys Don't Talk About
 
 9 to 5 jobs majuu zinalipa better than hapa Kenya but ni just enough kusurvive comfortably and that's it. The primary takeaway from the community is this: Pia usikuwe zile za ati uko above that juu at the end of the day, doh ni doh.
 
-*Engagement: 🔼 95 | 💬 11 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1ravhl6/the_side_hustles_diaspora_guys_dont_talk_about/)
+**Engagement:** 🔼 95 | 💬 11 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1ravhl6/the_side_hustles_diaspora_guys_dont_talk_about/)
 
 ### Usivuke Aussie Bila Rada ya Keja!
 
 Wakuu, kama unadhani Kanairo rent ni expe, ngoja ufike Aussie uone vayolence. The primary takeaway from the community is this: Don't be fooled na luku za IG.
 
-*Engagement: 🔼 87 | 💬 14 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t23nii/usivuke_aussie_bila_rada_ya_keja/)
+**Engagement:** 🔼 87 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t23nii/usivuke_aussie_bila_rada_ya_keja/)
 
 ### Importing a Car in kenya Is expensive. Here's why.
 
 The car inakuwa valued na its customs value (CIF) \- hii ni cost of the car+ Shipping +Insurance  Then comes the taxes:  Import duty \- 35% of the customs value   Excise duty \- 20%-35% of customs value + Import duty  VAT \- 16%  of Customs value+ Import duty + Excise duty   Import Declaration Fees(IDF)\- 3.5% of customs value   Railway Development Levy (RDL) \- 2% of the customs value  The taxes zinakuja to about 100% ya the customs value.
 
-*Engagement: 🔼 81 | 💬 26 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv1ztk/importing_a_car_in_kenya_is_expensive_heres_why/)
+**Engagement:** 🔼 81 | 💬 26 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv1ztk/importing_a_car_in_kenya_is_expensive_heres_why/)
 
 ### CBD Imegeuka Sea-BD: Kaa Rada, Kaa Safe!
 
 Wasee kwa ground, poleni kwa hii madness ya floods. The primary takeaway from the community is this: Keep dry, stay safe, &amp; check up on friends and fam!🙏
 
-*Engagement: 🔼 62 | 💬 7 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rnpqne/cbd_imegeuka_seabd_kaa_rada_kaa_safe/)
+**Engagement:** 🔼 62 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rnpqne/cbd_imegeuka_seabd_kaa_rada_kaa_safe/)
 
 <details>
 <summary><b>📚 View Additional Threads on Finances & The Black Tax (27 posts)</b></summary>
@@ -131,31 +131,31 @@ Wasee kwa ground, poleni kwa hii madness ya floods. The primary takeaway from th
 
 Kuna huyu sharp boy ameniapproach telegram, the guy says he's from SA and they have over $100m usdt they want to send from china but can't ju ya restrictions. The primary takeaway from the community is this: don't fall for such shenanigans.
 
-*Engagement: 🔼 127 | 💬 40 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sn8rlt/sharpness_mayangai/)
+**Engagement:** 🔼 127 | 💬 40 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sn8rlt/sharpness_mayangai/)
 
 ### Would you do the same
 
 she "gave up" on her job for her mental health. I'm wondering what her income changed to to be able to live comfortably and volunteer
 
-*Engagement: 🔼 27 | 💬 17 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sjyyww/would_you_do_the_same/)
+**Engagement:** 🔼 27 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sjyyww/would_you_do_the_same/)
 
 ### Winter Blues: Vile Majuu Inakupea Character Development
 
 Ukishafika Majuu na ile honeymoon phase iishe, hapo ndio reality inakuramba. The primary takeaway from the community is this: Doh ni tamu lakini your health ndio kila kitu!
 
-*Engagement: 🔼 9 | 💬 0 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1r9m26j/winter_blues_vile_majuu_inakupea_character/)
+**Engagement:** 🔼 9 | 💬 0 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1r9m26j/winter_blues_vile_majuu_inakupea_character/)
 
 ### Beef with Black Americans
 
 People talk about white racism, but nobody mentions the tension inside the Black community. The primary takeaway from the community is this: It’s not black and white (pun intended), and this silent black-on-black "war" can make life in Yues a living hell.
 
-*Engagement: 🔼 6 | 💬 1 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qq2orl/beef_with_black_americans/)
+**Engagement:** 🔼 6 | 💬 1 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qq2orl/beef_with_black_americans/)
 
 ### Majuu si Mombasa ama Limuru
 
 Wakati Yues wanalia njeve(https://www.usatoday.com/story/news/nation/2026/01/27/winter-storm-power-outages-snow-ice-cold-live-updates/88370340007/) 🥶, Australia kunachomeka(https://www.cnn.com/2026/01/29/australia/australia-victoria-heat-wave-bushfire-climate-intl-hnk)🔥. The primary takeaway from the community is this: Ukijidanganya ati sijui umetoka Mombasa ama Limuru, my fren—utajua hujui!
 
-*Engagement: 🔼 3 | 💬 0 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qvffas/majuu_si_mombasa_ama_limuru/)
+**Engagement:** 🔼 3 | 💬 0 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qvffas/majuu_si_mombasa_ama_limuru/)
 
 ---
 
@@ -165,13 +165,13 @@ Wakati Yues wanalia njeve(https://www.usatoday.com/story/news/nation/2026/01/27/
 
 My fren...tuongee ukweli. The primary takeaway from the community is this: You don't test the waters na constitutional amendments unless the endgame is to stay in power by any means.
 
-*Engagement: 🔼 10 | 💬 16 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rilgjm/kupiga_debe_kutoka_diaspora_next_year_is_a_total/)
+**Engagement:** 🔼 10 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rilgjm/kupiga_debe_kutoka_diaspora_next_year_is_a_total/)
 
 ### Wacha Patriarchy JKIA
 
 You see them at JKIA holding hands, excited for the "American Dream." Five years later, they are speaking through lawyers. The primary takeaway from the community is this: If you don't, kitakuramba!
 
-*Engagement: 🔼 1 | 💬 2 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qryl22/wacha_patriarchy_jkia/)
+**Engagement:** 🔼 1 | 💬 2 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1qryl22/wacha_patriarchy_jkia/)
 
 ---
 
@@ -181,31 +181,31 @@ You see them at JKIA holding hands, excited for the "American Dream." Five years
 
 so recently, our First Lady alifanya an interview with CBN pale America na akasema tangu waanze kuomba drought and famine haijahappen Kenya. Amesema we have achieved food security lakini just about a month a go before floods drought in North Eastern ilikuwa karibu kukuwa declared a national disaster
 
-*Engagement: 🔼 334 | 💬 44 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sc32dh/ananias_and_sapphira/)
+**Engagement:** 🔼 334 | 💬 44 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sc32dh/ananias_and_sapphira/)
 
 ### When going abroad ...
 
 Wacheni niwaibie siri ingine vijana especially kama unataka kwenda kazi nje. The primary takeaway from the community is this: DON'T rely on your papers sana.
 
-*Engagement: 🔼 206 | 💬 37 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv73ui/when_going_abroad/)
+**Engagement:** 🔼 206 | 💬 37 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv73ui/when_going_abroad/)
 
 ### Situation in South Africa
 
 So  you've seen what has been happening in SA for the past couple of weeks. The primary takeaway from the community is this: How exactly is a fellow african starting a business in your country preventing you to prosper?
 
-*Engagement: 🔼 162 | 💬 85 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1syyn8a/situation_in_south_africa/)
+**Engagement:** 🔼 162 | 💬 85 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1syyn8a/situation_in_south_africa/)
 
 ### Mnajijua. Stop Scrolling Without Voting or Commenting! Cheza Algorithm Tujenge Mbogi... Unless Wewe ni Kafment 🧐.
 
 Wakuu, ma-ghost ni wengi sana kwa hii sub! The primary takeaway from the community is this: Jenga hii mbogi.
 
-*Engagement: 🔼 132 | 💬 39 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s5utxs/mnajijua_stop_scrolling_without_voting_or/)
+**Engagement:** 🔼 132 | 💬 39 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s5utxs/mnajijua_stop_scrolling_without_voting_or/)
 
 ### Mbona Kenyan politicians only visit Kenyans in the US?
 
 Any time unaskia a kenyan politician anaddress kenyans in diaspora it's always kenyans in the US. The primary takeaway from the community is this: Is it the votes au ni financial support?
 
-*Engagement: 🔼 95 | 💬 34 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sewq36/mbona_kenyan_politicians_only_visit_kenyans_in/)
+**Engagement:** 🔼 95 | 💬 34 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sewq36/mbona_kenyan_politicians_only_visit_kenyans_in/)
 
 <details>
 <summary><b>📚 View Additional Threads on General Survival Tips (89 posts)</b></summary>

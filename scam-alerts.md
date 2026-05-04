@@ -10,31 +10,31 @@ Desperation breeds exploitation. As more Kenyans look for a way out or a way to 
 
 A section of kenyans wako under the impression that leaving Kenya ni guaranteed success but kuna things you need to Know before you travel: 1. The primary takeaway from the community is this: Don't force a lifestyle \- Learn to budget your money hata before you leave Kenya.
 
-*Engagement: 🔼 56 | 💬 5 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sw4cu8/beyond_manifesting_kwaheri_kenya/)
+**Engagement:** 🔼 56 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sw4cu8/beyond_manifesting_kwaheri_kenya/)
 
 ### Plug ya Majuu
 
 Sina muchene so tuende straight to the point. The primary takeaway from the community is this: Remember, kufika majuu ni process so jipange.
 
-*Engagement: 🔼 31 | 💬 2 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1r0qt23/plug_ya_majuu/)
+**Engagement:** 🔼 31 | 💬 2 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1r0qt23/plug_ya_majuu/)
 
 ### Kenyans never learn
 
 Last year 150+ Kenyans walirudishwa kutoka Myanmar. The primary takeaway from the community is this: What does it take for kenyans to learn?
 
-*Engagement: 🔼 31 | 💬 16 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rny95k/kenyans_never_learn/)
+**Engagement:** 🔼 31 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rny95k/kenyans_never_learn/)
 
 ### All that is Golden is not Gold - The Golden Triangle
 
 Kenyans wanafall victims kwa scams za kazi pale Thailand only to be transported to cybercrime facilities pale Myanmar, Laos na Cambodia. The primary takeaway from the community is this: Thailand pia imekuwa na story ya sex trafficking and last month 16 ladies walikuwa arrested for prostitution among them 5 Kenyans na 10 Tanzanians.I don't think they woke up and decided to book a plane to Thailand juu business is booming, something must have happened.
 
-*Engagement: 🔼 12 | 💬 8 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sdzt1e/all_that_is_golden_is_not_gold_the_golden_triangle/)
+**Engagement:** 🔼 12 | 💬 8 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sdzt1e/all_that_is_golden_is_not_gold_the_golden_triangle/)
 
 ### Drug trafficking to East Asia
 
 Jana there was a court ruling allowing polisi kufanya drug raids without warrants and it got me thinking about Margret Nduta- the lady mwenye alikuwa almost executed in Vietnam juu ya drug trafficking. The primary takeaway from the community is this: How does one go through with it after umeona what familia ya Nduta ilipitia?
 
-*Engagement: 🔼 8 | 💬 4 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rn34if/drug_trafficking_to_east_asia/)
+**Engagement:** 🔼 8 | 💬 4 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rn34if/drug_trafficking_to_east_asia/)
 
 <details>
 <summary><b>📚 View Additional Threads on The Gulf & Human Trafficking (5 posts)</b></summary>
@@ -56,31 +56,31 @@ Jana there was a court ruling allowing polisi kufanya drug raids without warrant
 
 Ukraine Defence Intelligence (HUR) wameidentify four Kenyans among them 22 y/o Eric Mwangi Nyambura, Joseph Kamau Wanjiru, Joel Ngure Karithi na Ronald Kipkurui Kibet who were killed after a Ukrainian mortar strike hit their position near Borova in the Kharkiv region in early 2026. The exact date waliuliwa haikuwa specified.
 
-*Engagement: 🔼 58 | 💬 44 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1svzsn0/ukraine_intelligence_identifies_kenyans_killed_in/)
+**Engagement:** 🔼 58 | 💬 44 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1svzsn0/ukraine_intelligence_identifies_kenyans_killed_in/)
 
 ### Festus Aras Omwamba release on Sh.5m bond - jamaa accused of sending Kenyans to Russia
 
 When hii story ya watu kuwa tricked into Russia ilikuwa too big for the government to ignore , waliarrest Festus Omwamba kama the guy sending Kenyans to war. The primary takeaway from the community is this: Whether he's guilty or not that's for courts to decide but is prosecuting jamaa mmoja tu enough for all those Kenyans in Russia?
 
-*Engagement: 🔼 57 | 💬 25 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s6nvz3/festus_aras_omwamba_release_on_sh5m_bond_jamaa/)
+**Engagement:** 🔼 57 | 💬 25 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s6nvz3/festus_aras_omwamba_release_on_sh5m_bond_jamaa/)
 
 ### Hot take : Russia was never the problem .
 
 Nimekuwa nikifikiria a lot about the Russia situation, everyone knew Russia kulikuwa na vita but still went. The primary takeaway from the community is this: If we are joining our own army because of convenience what prevents us from being recruited by another country?
 
-*Engagement: 🔼 28 | 💬 14 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s7pnzj/hot_take_russia_was_never_the_problem/)
+**Engagement:** 🔼 28 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s7pnzj/hot_take_russia_was_never_the_problem/)
 
 ### Trust is expensive
 
 Ikikuja ni story ya kuenda abroad trust ndio the one thing huwezi afford. The primary takeaway from the community is this: Usicompromise on due diligence whether ni agents au your uncle au utajipata kwa ngori.
 
-*Engagement: 🔼 19 | 💬 5 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rowfc6/trust_is_expensive/)
+**Engagement:** 🔼 19 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rowfc6/trust_is_expensive/)
 
 ### Mtu anipee kiti - Festus Omwanga plot thickens
 
 So this guy Festus Omwamba who is the alleged mastermind wa kutuma Kenyans to Russia accompanied CS Alfred Mutua to Senate, when he was being questioned story ya "Kazi Majuu". The primary takeaway from the community is this: Not insinuating anything but this raises more questions than it answers.
 
-*Engagement: 🔼 14 | 💬 18 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s6sf5x/mtu_anipee_kiti_festus_omwanga_plot_thickens/)
+**Engagement:** 🔼 14 | 💬 18 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s6sf5x/mtu_anipee_kiti_festus_omwanga_plot_thickens/)
 
 <details>
 <summary><b>📚 View Additional Threads on Military Traps (10 posts)</b></summary>
@@ -107,31 +107,31 @@ So this guy Festus Omwamba who is the alleged mastermind wa kutuma Kenyans to Ru
 
 Wakuu, hii mbogi ya r/Majuu254 inazidi kugrow na siri zimekuwa mob. The primary takeaway from the community is this: ---  Remote Work &amp; Tech  CV Fix: Bypass ATS Bots (+254 Number Hack)(https://www.reddit.com/r/Majuu254/comments/1rfp2z6): Siri ya kutoa namba ya +254 na location ya Nairobi ndio CV yako isitupwe na robots.
 
-*Engagement: 🔼 238 | 💬 38 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rvwwps/connection_ndio_hizi_master_list_ya_kutoana_ujinga/)
+**Engagement:** 🔼 238 | 💬 38 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rvwwps/connection_ndio_hizi_master_list_ya_kutoana_ujinga/)
 
 ### Normalise CHECKING UP on your friends abroad
 
 I mean genuine check ups not those fake check ups before uombe pesa. The primary takeaway from the community is this: Last year kulikuwa na a documentary about homeless kenyans in Massachusetts.(https://youtu.be/7Tu7dPlzMzk?si=CUQsc-_dLsGcpydq) I'm so sure back home watu wao wanasema hawapigi simu wasiombwe pesa.
 
-*Engagement: 🔼 145 | 💬 25 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sgizkw/normalise_checking_up_on_your_friends_abroad/)
+**Engagement:** 🔼 145 | 💬 25 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sgizkw/normalise_checking_up_on_your_friends_abroad/)
 
 ### Kutoana Ujinga: Why Your AI Gig &amp; Remote Accounts Keep Getting Banned (Na Njaro za Ku-Survive)
 
 Wadau, kama mnapiga hustle za AI training (kama Outlier, DataAnnotation) ama freelance platforms na personal laptop yako, lazima umeona account inakulwa ban out of nowhere. The primary takeaway from the community is this: &gt; Trap: Hizi platforms don't just check your IP address.
 
-*Engagement: 🔼 144 | 💬 19 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rjarfo/kutoana_ujinga_why_your_ai_gig_remote_accounts/)
+**Engagement:** 🔼 144 | 💬 19 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rjarfo/kutoana_ujinga_why_your_ai_gig_remote_accounts/)
 
 ### Mbona Unajenga Museum Shagz na Bado Unalipa Rent Majuu?
 
 Mbona utupe 5M - 10M cash kwa mjengo shagz yenye unatumia once a year, wakati hiyo dough ingekuwa downpayment ya nyumba majuu? The primary takeaway from the community is this: Ww unaonaje?
 
-*Engagement: 🔼 83 | 💬 38 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rpmhf6/mbona_unajenga_museum_shagz_na_bado_unalipa_rent/)
+**Engagement:** 🔼 83 | 💬 38 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rpmhf6/mbona_unajenga_museum_shagz_na_bado_unalipa_rent/)
 
 ### Why I never remove my KE bracelet
 
 First time flight was an international flight. The primary takeaway from the community is this: I don't know what went wrong but ndege iliniacha💀, sijawahi Lia hivo Kwa miaka yangu 27.
 
-*Engagement: 🔼 57 | 💬 14 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sxwbdg/why_i_never_remove_my_ke_bracelet/)
+**Engagement:** 🔼 57 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sxwbdg/why_i_never_remove_my_ke_bracelet/)
 
 <details>
 <summary><b>📚 View Additional Threads on Cybercrime & General Scams (54 posts)</b></summary>
@@ -202,13 +202,13 @@ First time flight was an international flight. The primary takeaway from the com
 
 Earlier hii mwaka Ahmed Eltayeb, a Sudanese national alikuwa arrested na a forged UK residence permit. The primary takeaway from the community is this: Hata ukiweza kupita JKIA unaweza jipata in prison like the dozen of Kenyans imprisoned in Thailand juu ya  document forgery.
 
-*Engagement: 🔼 40 | 💬 5 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1stk4wr/your_next_stop_after_your_agent_kukupanga/)
+**Engagement:** 🔼 40 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1stk4wr/your_next_stop_after_your_agent_kukupanga/)
 
 ### Hakuna Brayo registered by NEA
 
 Most of the time unaskia mtu akisema alikaribishwa Nairobi na hawa agents unaskia mtu akisema "wangu alikuwa anaitwa Brayo au Mary". The primary takeaway from the community is this: Verify kama wako registered: https://neaims.go.ke/EmploymentAgencyListSearch.aspx
 
-*Engagement: 🔼 8 | 💬 2 —* [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rzk0b6/hakuna_brayo_registered_by_nea/)
+**Engagement:** 🔼 8 | 💬 2 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1rzk0b6/hakuna_brayo_registered_by_nea/)
 
 ---
 
