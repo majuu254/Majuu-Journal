@@ -1,4 +1,4 @@
-![Majuu254 Magazine Banner](scripts_and_data/banner.png)
+![Majuu254 Magazine Banner](images/banner.png)
 
 # The Majuu254 Magazine
 
