@@ -1,5 +1,6 @@
-title: Majuu Journal
-description: Your ultimate, community-driven guide to navigating life, work, and opportunities abroad.
 theme: jekyll-theme-minimal
-baseurl: "/Majuu-Journal"
-url: "https://majuu254.github.io"
+
+# Majuu Journal Sidebar Configuration
+title: '# MAJUU JOURNAL'
+description: |
+  Verified Blueprints for the Global Grind.
