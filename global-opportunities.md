@@ -6,57 +6,61 @@ Looking to elevate your education or pivot your career onto the global stage? Th
 
 ## Elite Scholarships
 
-### MEXT @@
+### Kenyans headed to Japan for study , next inaweza kuwa wewe
 
-Hello guys today I went to the embassy of Japan in Kenya to submit my documents I found out I had not placed my medical certificate with them I found out after reaching home😭😭what's going to happen I really used a lot of time and money for this scholarship
+Hawa ndio the 2025 scholarship winners wa MEXT heading to Japan this month. You could be in the next batch , learn how to apply \here\(https://www.reddit.com/r/Majuu254/s/pqFg4lVz3P)
 
-> **Community Insight:** The consensus among top contributors is to You have to commit seppuku! !gif(giphy|zzCcBWEhyNi9i) whereas others suggest Itakua hard sana kama deadline ilifika but you can still go back and ask for resubmission.  Just early mornings  ndo utakua na high chances.  Had an A nkaatach original result slip  badlands ya photocopy and they helped me alot with it and Go back and talk to the officials.
+> **Community Insight:** Must be extremely hard to make friends in Japan. When I was new in Germany, tulikua language school with this Japanese Girl. Because Düsseldorf is extremely expensive, we lived in a small village on the outskirts of Düsseldorf and we would commute an hour each way every day together. It took her 2 months to be comfortable talking to me. Despite commuting together every damn day!   Anyway, good things take long to come. Japanese pussy is highly recommended. I still look back fondly. There is a very large Japanese contingent in Düsseldorf and my God, are they drunkards!
 
-**Engagement:** 🔼 23 | 💬 38 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1td0c6u/mext/)
+**Engagement:** 🔼 91 | 💬 13 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1scy8vm/kenyans_headed_to_japan_for_study_next_inaweza/)
 
-### Reminder: Japan MEXT, UK IOP, and GREAT Scholarships. Jaribu Bahati Yako!
+### Kenya's sweep at the Boston Marathon
 
-Tuliwaambia about some of these scholarships na sasa deadline zimekaribia. Kama bado uko interested, you need to act now!
+Kenya ilishinda both male and female races za Boston Marathon with Korir setting a new course record and Lokedi winnning the women's race. It might be normal kuona Kenyans on the podium but this meant something more at a time when kenyan athletes are under a microscope juu ya some people who deci...
 
-**Engagement:** 🔼 5 | 💬 1 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t4w801/reminder_japan_mext_uk_iop_and_great_scholarships/)
+> **Community Insight:** Some observers advocate for the exclusion of Kenyan athletes from long-distance marathons to counteract their perceived dominance and promote global parity. This sentiment highlights a desire for a more equitable competitive field that allows a broader range of nations to achieve international success.
+
+**Engagement:** 🔼 44 | 💬 3 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1srv21o/kenyas_sweep_at_the_boston_marathon/)
+
+### MEXT Japan Scholarship about to open
+
+Most people wakiplan kustudy abroad think about the US and Europe as the only options. Japan is a solid choice na inaoffer scholarships to Kenyans for Undergraduate, Masters and Phd.
+
+> **Community Insight:** Applicants are eager to leverage the opportunity for economic advancement while expressing concern over the rigorous Japanese syllabus and stringent application conditions. Current students are also actively seeking clarification on eligibility requirements for those mid-way through their undergraduate studies.
+
+**Engagement:** 🔼 35 | 💬 25 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1scy34m/mext_japan_scholarship_about_to_open/)
+
+### PhD scholarships
+
+I earned my master’s degree with distinction in the UK in 2023. After graduating, I returned home and worked on a local project until it ended in 2024.
+
+> **Community Insight:** Contributors advocate for pursuing fully funded doctoral opportunities in the United States and Northern Europe to secure superior financial support and career prospects compared to those available in the United Kingdom or Kenya. The feedback emphasizes leveraging research and teaching assistantships to offset costs while questioning the professional viability of returning to the Kenyan job market.
+
+**Engagement:** 🔼 18 | 💬 31 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sh18g3/phd_scholarships/)
 
 ---
 
 ## Emerging Destinations & General Jobs
 
-### Ausbildung vs Masters in Germany
+### Kindly recommend a good legit agent for middle east jobs
 
-Ausbildung ndio the best option ya ku-migrate Germany kuliko Masters juu haina requirement ya Blocked Account ya €12,000. Ni free entry fiti kwa wasee wa trades.
+Hey guys am looking for a legit Ag\nt wa jobs in the middle east Bana nataka kutoka block
 
-**Engagement:** 🔼 9 | 💬 1 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t3z895/ausbildung_vs_masters_in_germany/)
+> **Community Insight:** Rigorous due diligence and direct employer applications are essential to navigating recruitment risks, particularly as participants prioritize European opportunities over Middle East placements. While established agencies and personal referrals provide potential leads, independent verification remains the primary safeguard against unreliable agents.
+
+**Engagement:** 🔼 21 | 💬 26 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1stbtkj/kindly_recommend_a_good_legit_agent_for_middle/)
 
 ---
 
 ## General Global Opportunities
 
-### Kenya is hars
+### Sad : Edna mmbali Ombakho repatriated
 
-I have a bachelor's degree in an engineering course from top university here in Kenya but currently I am working as a delivery rider wa Glovo. I advise guys we have to survive first then things will work out hapo mbele.
+Edna alikuwa a 31 year old master's student pale York St John University. Alikuwa reported missing back in Feb and later on march 8th akapatikana in River Berkshire.
 
-> **Community Insight:** The consensus among top contributors is to There's so many talented and  qualified people not practising their trades and years to come govt will be outsourcing foreign labour for what a kenyan can do, Chinese will continue taking up engineering jobs and various sectors,sad . whereas others suggest Kwanza anza na wantam, Mos mos tu jomba,tutafika and A hospital in Mt Elgon is in need of a lab expert, if you know a person who knows a person, link me.
+> **Community Insight:** The community has expressed deep sorrow over the loss, with many reflecting on a perceived lack of safety based on frequent reports of crime. While mourning the individual, several contributors noted that their exposure to crime documentaries has heightened their anxiety and sense of caution.
 
-**Engagement:** 🔼 44 | 💬 10 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tcrm2e/kenya_is_hars/)
-
-### Norbert Matara pleads guilt to the brutal murder of Ex girlfriend in the Us
-
-33 y/o Kenyan man in Newark, Delaware, Norbert Matara ameplead guilty to the murder ya 31 y/o Tracy Nyariki. Hii ilihappen back in December 2024 when Norbert waited for Tracy then stabbed her 58 times before dismembering her.
-
-> **Community Insight:** The consensus among top contributors is to Well I sure do hope he receives a thorough induction, and subsequent refreshers, by the booty bandit(s)😁 whereas others suggest Let this fool rot in prison. In fact, that's very lenient. !gif(giphy|d8XNDMiXhPMVRKpjlu) and This name Nobert is cursed ama?
-
-**Engagement:** 🔼 26 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t1mzrs/norbert_matara_pleads_guilt_to_the_brutal_murder/)
-
-### Information session to become an ambassador teacher US
-
-Walimu, mmefikiwa. Sign up for the information session, link in the comments.
-
-> **Community Insight:** The consensus among top contributors is to Mods have pinned a comment(https://reddit.com/r/Majuu254/comments/1t1z964/information_session_to_become_an_ambassador/ojk2msx/) by u/Mtoto\_Mzuri: &gt; Link ndio hii.(https://participatelearning.zoom.us/meeting/register/koWOTsCkQV2-2FrRIZQyoQ?utm_medium=paid&amp;utm_source=fb&amp;utm_id=52524483512019&amp;utm_content=52524486392019&amp;utm_term=52524483512419&amp;utm_campaign=52524483512019/registration)  Note: More relevant details  ^(What is Spotlight?(https://developers.reddit.com/apps/spotlight-app)) whereas others suggest u/LOYSHERRIF uliniambia nikipata ya walimu nikuambie. Here you go. Remember to give us feedback whenever necessary. and Link ndio hii.(https://participatelearning.zoom.us/meeting/register/koWOTsCkQV2-2FrRIZQyoQ?utm_medium=paid&amp;utm_source=fb&amp;utm_id=52524483512019&amp;utm_content=52524486392019&amp;utm_term=52524483512419&amp;utm_campaign=52524483512019/registration).
-
-**Engagement:** 🔼 4 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t1z964/information_session_to_become_an_ambassador/)
+**Engagement:** 🔼 130 | 💬 19 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1srf92i/sad_edna_mmbali_ombakho_repatriated/)
 
 ---
 

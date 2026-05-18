@@ -6,146 +6,135 @@ Getting abroad is just step one. The real challenge is thriving in a new culture
 
 ## Real Estate & Investments
 
-### Gambling Addiction from SportPesa Hadi Casino za Majuu
+### Aliko Dangote Pledges to build a refinery in East Africa
 
-Gambling ndio the new wash wash scheme inamaliza wasee. Unaweka mbao SportPesa ukidhani leo ndio siku ya kuomoka.
+At the  Infrastructure summit in Nairobi, Dangote alisema he can replicate the 650,000 barrels a day refinery he built in Lagos hapa East Africa. The refinery most likely itakuwa in Tanga Tanzania.
 
-> **Community Insight:** The consensus among top contributors is to I wonder why a state would create a regulator like the BCLB, to protect the Citizens really? Or to institutionalize and tax the very vices that threaten to dissolve the social contract? whereas others suggest That small win is literally just bait, the dopamine hits harder than the actual money. and Most addictions zikona timeout. Gambling kuna games every second. Even dog tacing in Russia 😂. After a while you realise ata you are not chasing the wins. Ni the high you get when you are close. Avoid that nonsense like the plague.
+> **Community Insight:** Public sentiment links the loss of regional infrastructure projects to government corruption and protected oil interests, favoring Tanzania's economic gain. Despite this cynicism, the development is viewed as a pragmatic move toward energy independence from Gulf suppliers.
 
-**Engagement:** 🔼 27 | 💬 10 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t2rg71/gambling_addiction_from_sportpesa_hadi_casino_za/)
+**Engagement:** 🔼 53 | 💬 28 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1su5x3u/aliko_dangote_pledges_to_build_a_refinery_in_east/)
 
-### New Zealand
+### Diaspora Remmitaces to Kenya hit Ksh.58.1Billion
 
-Hello guys , Nani ako New Zealand. Dm ama comment
+Everyone anaongelea the record high remmitances in March from kenyans abroad. How much of that money was investment into the economy au was it just funding for some people's lifestyles.
 
-> **Community Insight:** The consensus among top contributors is to I am also trying to make a friend with anyone in newzealand whereas others suggest Umesema sisi WA hapa mwiki tukae kando kidogo and Is the grass green as they say?
+> **Community Insight:** Kasongo is looking for ways to tax that money and has been for a while. Just wait &amp; see https://preview.redd.it/qwcpl70pt5wg1.jpeg?width=225&amp;format=pjpg&amp;auto=webp&amp;s=345f8a4232603c133609f385abcd427cedd9bd41 .
 
-**Engagement:** 🔼 8 | 💬 12 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tcvp4g/new_zealand/)
+**Engagement:** 🔼 47 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1spry7m/diaspora_remmitaces_to_kenya_hit_ksh581billion/)
 
-### Cape Verde is pulling Diaspora Tech Talent: Kenya Should Take Notes
+### 5,000 Members: The 48th County is Growing! 🎉
 
-Have you seen what Cape Verde is doing? They are setting up digital infrastructure to reverse the brain drain and attract diaspora investment.
+Wakuu, we just hit the 5K mark! Asanteni kwa mbogi yote—from wale wako Majuu to the ones on the ground.
 
-**Engagement:** 🔼 4 | 💬 1 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1teje20/cape_verde_is_pulling_diaspora_tech_talent_kenya/)
+**Engagement:** 🔼 31 | 💬 6 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sa77ya/5000_members_the_48th_county_is_growing/)
 
-### A Nairobi high-rise with TWO pools — one on the 28th floor overlooking Karura Forest. Are developers finally raising the bar? 🇰🇪
+### What's your end game ukienda abroad ?
 
-Came across this development going up in Westlands called Hephé Palace and genuinely had to share because the amenity list stopped me in my tracks. Two swimming pools,  one on the 1st floor with a pool bar, and another heated infinity pool on the 28th floor with direct Karura Forest views.
+Nimeona some guys especially wenye wanaenda Middle East come back maybe build a house then kidogo imebaki wanaanza kabiz but biz inadie and they're back kuteseka but now in masonry house. Wengine wanatuma dooh home only to find nothing has changed at home.
 
-> **Community Insight:** The consensus among top contributors is to Smells like an Ad...but interesting development 🤔 whereas others suggest alot of expats are moving in and This looks insane  Finally some proper luxury vibes hitting Nairobi. That 28th floor infinity pool with Karura views? I’m sold. Westlands just leveled up heavy. Anyone know the price range for these units? Curious how it compares.
+> **Community Insight:** Mi nikienda abroad ntasaka Lil Uzi vert na Doja cat wanisignie t-shirt yangu alafu nichill hapo Starbucks nikiscroll reddit.
 
-**Engagement:** 🔼 3 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t3cxwb/a_nairobi_highrise_with_two_pools_one_on_the_28th/)
+**Engagement:** 🔼 28 | 💬 53 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1su5og0/whats_your_end_game_ukienda_abroad/)
 
 ---
 
 ## Finances & The Black Tax
 
-### Usivuke Aussie Bila Rada ya Keja!
+### Importing a Car in kenya Is expensive. Here's why.
 
-Wakuu, kama unadhani Kanairo rent ni expe, ngoja ufike Aussie uone vayolence. Renting imekuwa ngori sana juu vacancy rates zime-hit lows za ajab.
+The car inakuwa valued na its customs value (CIF) \- hii ni cost of the car+ Shipping +Insurance  Then comes the taxes:  Import duty \- 35% of the customs value   Excise duty \- 20%-35% of customs value + Import duty  VAT \- 16%  of Customs value+ Import duty + Excise duty   Import Declaration Fe...
 
-> **Community Insight:** The consensus among top contributors is to Same problem in Germany. Mi niliamua sitaki upuzi ya kutafuta nyumba. If a potential employer wants my signature, accommodation is non negotiable. You find me housing that is up to my standard first, then we can talk. whereas others suggest Kwani hutaki watu wafanye Camping in a foreign land? and Siko Aussie. I think I ditched that dream for this reason. Seems very scary kukosa housing kabisaaa.
+> **Community Insight:** I don't think its a good year to buy a car , I suspect next year might be better.
 
-**Engagement:** 🔼 139 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t23nii/usivuke_aussie_bila_rada_ya_keja/)
+**Engagement:** 🔼 82 | 💬 26 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv1ztk/importing_a_car_in_kenya_is_expensive_heres_why/)
 
-### SHOUL I SUE?
+### KQ might lose the battle to Ethiopian Airways
 
-Good morning wakenya,30F i have a burning issue. it has been affecting me  mentally ever since the event,  in august last year i ccame from saudi na savings zangu 300k..
+I've just watched the review about Ethiopian Airways na clearly wanajiposition as a connection hub. With their fleet of new planes and the new airport being built KQ inaweza jipata pabaya.
 
-> **Community Insight:** The consensus among top contributors is to So you've gone for 7 months without a phone???? You didn't report it then youve waited 7 months to report??? Hii ni Jaba. https://preview.redd.it/surgz6fiq80h1.jpeg?width=1080&amp;format=pjpg&amp;auto=webp&amp;s=891bca8f37c24a21582f74e8f201a51717ab9b98 whereas others suggest Sorry for your situation  Like an year ago I lost a huge sum because I trusted someone who I thought was a friend. Had given up on it until I came across a quote "STAND FOR YOURSELF NO MATTER THE OUTCOME" I reported and got half my money back. Please stand for yourself and Money leaves trails, especially money in your phone. Go report; you'll get the help you need. Those people drugged you.
+> **Community Insight:** Ethiopian Airlines maintains a decisive regional lead through fleet superiority and operational reliability, while Kenya Airways struggles with persistent service failures and high costs. Future growth for the Kenyan carrier remains contingent on significant infrastructure investment to bridge a competitive gap many consider already settled.
 
-**Engagement:** 🔼 32 | 💬 27 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t8wy0o/shoul_i_sue/)
+**Engagement:** 🔼 35 | 💬 44 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sce2ww/kq_might_lose_the_battle_to_ethiopian_airways/)
 
-### Fuel Prices Ndio Hizo Tena: Why Your Black Tax Just Increased
+---
 
-Wakuu, if you haven't checked the news from 254, fuel prices zimepanda tena. Wandayi says it's the Middle East crisis, but ground we know how it goes.
+## Culture Shock & Racism
 
-**Engagement:** 🔼 22 | 💬 2 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tej6jg/fuel_prices_ndio_hizo_tena_why_your_black_tax/)
+### Sharpness Mayangai
 
-### Wastewater Report Imeanika Drug Use in 254! Who Is Surprised?
+Kuna huyu sharp boy ameniapproach telegram, the guy says he's from SA and they have over $100m usdt they want to send from china but can't ju ya restrictions. so for  the transaction to happen they tell me to open an acc from a certain exchange site which he claims to be safe.
 
-There’s a new report(https://allafrica.com/stories/202605150077.html) out by NACADA. Nairobi is the first city in East Africa to do wastewater drug surveillance.
+> **Community Insight:** Respondents identify the tactic as a transparent, recycled scheme that has historically harmed many victims through predictable rhetoric like "manifesting." The feedback characterizes the approach as a well-known trick rather than a novel occurrence.
 
-> **Community Insight:** The consensus among top contributors is to If you have ever been back home and witnessed the ‘sherehe’ Kenyans partake in, you quickly realise most of it is not for fun, it is a coping mechanism. It’s masks a lot of mental health issues and childhood trauma that has not been addressed. That population, especially Nairobi, is ripe for a drug like meth or ecstasy. whereas others suggest I don't joke about addiction and mental health because I have experienced it firsthand in my family....drugs ni mbaya ...mihadarati inachizisha and This is very concerning 😱.
+**Engagement:** 🔼 130 | 💬 40 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sn8rlt/sharpness_mayangai/)
 
-**Engagement:** 🔼 13 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tf2rra/wastewater_report_imeanika_drug_use_in_254_who_is/)
+### Would you do the same
 
-### Finance bill tax on payment platforms
+she "gave up" on her job for her mental health. I'm wondering what her income changed to to be able to live comfortably and volunteer
 
-Treasury plans to introduce 16% VAT on payment platforms like M-Pesa, Airtel Money and Pesapal in the Finance Bill 2026. While Treasury says the tax targets platform providers, experts warn the cost could still be passed to users through higher transaction fees.
+> **Community Insight:** Perspectives diverge between validating the departure as a necessary escape from systemic racism and mental exhaustion and advocating for a pragmatic endurance of high-pressure environments to secure long-term financial stability. This discourse emphasizes that personal well-being and the preservation of one's values must ultimately outweigh the benefits of a lucrative but toxic career.
 
-> **Community Insight:** The consensus among top contributors is to Widening the tax gap is the pacifier language - real thing is they want you enslaved. whereas others suggest The most painful part for me ni ati walikataa Loans za IMF juu iliwaambia wadeal na wastage, so they'll borrow very expensive local debt. If you're liquid, nunia tu shares za Bank. and double taxation when you use the service,.
-
-**Engagement:** 🔼 10 | 💬 8 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tcq6o3/finance_bill_tax_on_payment_platforms/)
-
-<details>
-<summary><b>📚 View Additional Threads on Finances & The Black Tax (3 posts)</b></summary>
-
-<ul>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1tadvu6/rampant_use_of_madawa_za_kulevya_huku_even_kids/">Rampant use of madawa za kulevya huku, even kids are exposed karibu kila Kona.</a> (🔼 9 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t53pyf/how_do_you_actually_earn_in_crypto/">How do you actually earn in crypto?</a> (🔼 8 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t2kg63/premium_spotify_and_netflix_family_group/">Premium Spotify and Netflix family group</a> (🔼 3 | 💬 undefined)</li>
-</ul>
-</details>
+**Engagement:** 🔼 25 | 💬 17 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sjyyww/would_you_do_the_same/)
 
 ---
 
 ## General Survival Tips
 
-### Dangote leaning towards Mombasa for Refinery site
+### Ananias and Sapphira
 
-So kila mtu anajua Dangote aliannounce plans za kujenga 650,000 barrels-a-day refinery in East Africa. Initial plans ilikuwa ijengwe Tanga Tz but leo amesema analean towards Mombasa.
+so recently, our First Lady alifanya an interview with CBN pale America na akasema tangu waanze kuomba drought and famine haijahappen Kenya. Amesema we have achieved food security lakini just about a month a go before floods drought in North Eastern ilikuwa karibu kukuwa declared a national disaster
 
-> **Community Insight:** The consensus among top contributors is to He is the richest man in Africa, Kenya would be most obliged to have him invest here. whereas others suggest Nope ruto for one wants to eat with mama wa tz and Kenya haina Oil Cartel... Our Demand is low. Kuingia hiyo industry will not be hard for Dangote.
+> **Community Insight:** The community responds with a mix of amusement and skepticism to the subject’s perceived martyrdom, finding humor in the sharp biblical and literary analogies used to describe her behavior. These reactions underscore the perceived futility of challenging an individual who frames their actions as divine trials and tribulations.
 
-**Engagement:** 🔼 62 | 💬 23 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t93ci4/dangote_leaning_towards_mombasa_for_refinery_site/)
+**Engagement:** 🔼 335 | 💬 44 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sc32dh/ananias_and_sapphira/)
 
-### Risasi kwa Mguu ama Viboko? Samia and Zaks Exchange Vayolence Notes.
+### When going abroad ...
 
-Character development ya 254 imegraduate to regional level! Jana huko Dar, Mama Samia alipatia Ruto cheat code mpya ya ku-deal na mbogi: "flog anti-government protesters with canes(https://www.standardmedia.co.ke/national/article/2001547037/if-they-come-to-you-flog-them-suluhus-blunt-message-to-r...
+Wacheni niwaibie siri ingine vijana especially kama unataka kwenda kazi nje. DON'T rely on your papers sana.
 
-> **Community Insight:** The community emphasizes that !gif(giphy|pRotk2UQTsozm).
+> **Community Insight:** I feel like I need to weigh in on this with my own experience and it might help someone to think differently and not just listen to people who say Kenyan degrees are useless- you can curve your own path!-I came to Yues with masters degree in Rural sociology- and of course when I got here people told me that a stupid degree and jobs in that field Niza wazungu. I believed and I started working in the warehouse- so for the first 3 years I wasted my time doing some stupid shit thinking I don’t belong- what was a shock is even in the warehouse people would always ask me my level of education since they felt I don’t belong there and I’m educated. Fast forward, I met another family that was making it big here- husband was Ethiopian and worked in insurance field. He introduced me to insurance- this gave me so much confidence to start looking for a job in my field- they always asked me what I’m doing with my life and I’m educated- i finally got a job in healthcare focus on public health even though I’m not public health professionally there was a lot of transferable skills. I had to learn some things but I use my sociological perspective to interpret and view things. We did research and statistics and understanding communities in sociology which helps a lot in my work. I teach public health professionals some things they didn’t do in school but they find important and I learn from them. At times I don’t believe how much time I wasted not believing in myself. If you come to with some sort of education believe in yourself and don’t let the accents deter you.
 
-**Engagement:** 🔼 35 | 💬 4 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t4uvtm/risasi_kwa_mguu_ama_viboko_samia_and_zaks/)
+**Engagement:** 🔼 209 | 💬 44 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sv73ui/when_going_abroad/)
 
-### "Pelvic Exam" Gone Wrong for Dr. Obwaka in Kitengela 😺
+### Situation in South Africa
 
-Character development ya Dr. Job Obwaka Kitengela ni lesson lethal.
+So  you've seen what has been happening in SA for the past couple of weeks. Ghana imeadvise it's citizens to exercise caution while Nigeria has advised citizens wake to close businesses especially during demos.
 
-> **Community Insight:** The consensus among top contributors is to It has come to light that kuna foul play hapa whereas others suggest As assassinations go, the most effective ones are the ones that attack your character as they dispatch you. Mutula Kilonzo, Msando, Jirongo, Obwaka… they had to be dispatched in the company / association of chasing pussy. So that the intrigue masks any agenda they had. and Seems like you are misinformed bro. This is a cover up story.
+> **Community Insight:** Community members condemn the targeting of successful individuals and allege state-sponsored incitement, warning that intra-African hostility risks a broader continental crisis while validating colonial interests. Those affected report profound distress, feeling trapped between escalating violence and the necessity of completing their education.
 
-**Engagement:** 🔼 19 | 💬 35 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t3xxa8/pelvic_exam_gone_wrong_for_dr_obwaka_in_kitengela/)
+**Engagement:** 🔼 175 | 💬 87 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1syyn8a/situation_in_south_africa/)
 
-### Majuu254: Next level? Tunaimprove aje hii mbogi? 🚀🇰🇪
+### Mbona Kenyan politicians only visit Kenyans in the US?
 
-Mbogi inazidi kugrow na vibes zinachange daily as we add new members. Sasa ni time ya kuskia sauti zenu!
+Any time unaskia a kenyan politician anaddress kenyans in diaspora it's always kenyans in the US. Sijaskia wakitembelea Kenyans in the Middle East where Kenyans are having problems.
 
-> **Community Insight:** While some community members advise that I would prefer English some of us are Kenyans but didn't really do Swahil in School, others highlight that Wacha nibrainstorm narudi.
+> **Community Insight:** The community attributes the focus on the United States to its status as the wealthiest and most populous Kenyan diaspora hub, where families seek education and financial stability away from handout culture. Respondents further highlight the region's role as a primary source of foreign exchange and "real earners," contrasting it with less affluent labor markets.
 
-**Engagement:** 🔼 8 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t8ckgh/majuu254_next_level_tunaimprove_aje_hii_mbogi/)
+**Engagement:** 🔼 98 | 💬 33 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sewq36/mbona_kenyan_politicians_only_visit_kenyans_in/)
 
-### Warembo Wa Majuu Na Hair Trends. Instagram Manenoz.
+### OLD GOLDEN DAYS
 
-Nimekuwa niki-observe hii trend ya beauty abroad. Pengine huko Kanairo maintaining a good look ni affordable, lakini huku Majuu, the cost of quality hair is insane.
+Mimi kwetu hii biashara ndo ilikuwa  hustle ya mathee buana. Huko ukambani they call it "Kaluvu" those days it costed 20bob per cup.
 
-> **Community Insight:** The consensus among top contributors is to Good looks ni currency. The more you invest, the more the perceived value. Some ladies have been able to infiltrate the exclusive circles of the rich by looksmaxxing. whereas others suggest Huku nje some of us do our own hair, you can see ladies doing tutorials online on how to make their hair. I used to see people in hair groups showing us “trust the process” videos, and you’d see comments like… why not go to the salon, but now I understand.    Either the salon is too expensive or the hairdresser is too far, some even drive for 2 hours to a hairdresser and if you have younger kids, that’s extra hours of babysitting pay. As for me and my simple life, I do cornrows wear a wig, i have a lot of wigs, for each look and event. and u/Mtoto_Mzuri hebu explain to us this madness!
+> **Community Insight:** Community members shared profound nostalgia for past social landscapes, reflecting on how historical experiences with local street culture served as a formative foundation for their current lives.
 
-**Engagement:** 🔼 8 | 💬 8 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tfet6q/warembo_wa_majuu_na_hair_trends_instagram_manenoz/)
+**Engagement:** 🔼 77 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1se5uu0/old_golden_days/)
 
 <details>
-<summary><b>📚 View Additional Threads on General Survival Tips (10 posts)</b></summary>
+<summary><b>📚 View Additional Threads on General Survival Tips (11 posts)</b></summary>
 
 <ul>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t3h8bx/babu_claims_hat_he_has_spent_over_70m_on_dj/">Babu claims hat he has spent over 70M on DJ Evolve. So what?</a> (🔼 6 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1ta8bfo/if_youre_banned_bila_makosa_please_message_the/">If you're banned bila makosa, please message the MODs.</a> (🔼 5 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t3xmgv/between_two_worlds/">Between Two Worlds</a> (🔼 5 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1td2jyv/the_urge_to_work_abroad/">The urge to work Abroad</a> (🔼 4 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t8v02p/smocha_sunday_drop_picha_ya_comfort_food_ama/">🌭 Smocha Sunday: Drop Picha Ya Comfort Food Ama Kinywaji Unateremsha! 🍻</a> (🔼 4 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t8j8fo/investing_home/">Investing home</a> (🔼 3 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t88pjp/ielts_academic_test/">IELTS Academic Test</a> (🔼 3 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t7stp7/ai_shorts_goldmine_ama_jaba/">AI Shorts: Goldmine ama Jaba?</a> (🔼 3 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1tf9om4/mass_layoffs_in_disney_is_ai_taking_over_from/">Mass layoffs in Disney. Is A.I. taking over from human creativity? In Kenya, major companies are opting for A.I. models and images rendering photography and other creative arts redundant. Maoni?</a> (🔼 2 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t29pbl/smocha_sunday_drop_picha_ya_comfort_food_ama/">🌭 Smocha Sunday: Drop Picha Ya Comfort Food Ama Kinywaji Unateremsha! 🍻</a> (🔼 2 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sw51nv/sebastian_sawe_breaks_the_2_hour_mark_to_win/">Sebastian Sawe Breaks the 2 hour mark to win London Marathon</a> (🔼 68 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sdrg0h/ungetaka_kujifunza_nini_in_2026/">Ungetaka kujifunza nini in 2026</a> (🔼 59 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sjcf3m/we_have_the_capacity_to_supply_most_of_west/">"We have the capacity to supply most of West, central and East Africa" - Aliko Dangote</a> (🔼 45 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sn8gza/lonely_kenyans_abroad/">LONELY KENYANS ABROAD</a> (🔼 43 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1slzd53/diaspora_peeps_kwani_how_much_do_you_spend_on/">Diaspora peeps kwani how much do you spend on groceries ? 🛒🥗🥦🥒</a> (🔼 38 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sp7awb/can_nairobi_achieve_addis_ababa_planning/">Can Nairobi achieve Addis Ababa planning?</a> (🔼 33 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sveup1/sgr_electrification/">SGR electrification</a> (🔼 33 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1so2jir/what_actually_is_patriotism/">What actually is Patriotism?</a> (🔼 30 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sagdqb/kenya_branded_as_a_corruption_haven_by_the_us/">Kenya branded as a 'corruption haven' by the US</a> (🔼 24 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1sz9oay/music_app/">Music App</a> (🔼 19 | 💬 undefined)</li>
+<li><a href="https://www.reddit.com/r/Majuu254/comments/1snfk9s/german_friend/">GERMAN FRIEND</a> (🔼 15 | 💬 undefined)</li>
 </ul>
 </details>
 

@@ -4,57 +4,75 @@ Desperation breeds exploitation. As more Kenyans look for a way out or a way to 
 
 ---
 
+## The Gulf & Human Trafficking
+
+### Beyond "Manifesting Kwaheri Kenya"
+
+A section of kenyans wako under the impression that leaving Kenya ni guaranteed success but kuna things you need to Know before you travel: 1. Your destination inamatter \- watu wanatravel just to leave Kenya ndio wanajipata Myanmar na Russia.
+
+> **Community Insight:** Individuals are increasingly prioritizing internal fulfillment over external comparisons, recognizing that perceived success elsewhere is often a byproduct of peer pressure. This shift underscores a growing collective skepticism toward the idealized standards of others.
+
+**Engagement:** 🔼 57 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sw4cu8/beyond_manifesting_kwaheri_kenya/)
+
+---
+
+## Military Traps
+
+### Ukraine Intelligence identifies Kenyans killed in Russia Ukraine war.
+
+Ukraine Defence Intelligence (HUR) wameidentify four Kenyans among them 22 y/o Eric Mwangi Nyambura, Joseph Kamau Wanjiru, Joel Ngure Karithi na Ronald Kipkurui Kibet who were killed after a Ukrainian mortar strike hit their position near Borova in the Kharkiv region in early 2026. The exact date...
+
+> **Community Insight:** Critical assessments of individual foresight compete with a somber acknowledgment that systemic poverty and desperation compel Kenyans to pursue high-risk opportunities abroad. This discourse emphasizes a harsh reality where economic survival often overrides personal safety and critical risk assessment.
+
+**Engagement:** 🔼 58 | 💬 45 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1svzsn0/ukraine_intelligence_identifies_kenyans_killed_in/)
+
+---
+
 ## Cybercrime & General Scams
 
-### Dash Cam Inaweza Save Life Yako Majuu
+### Normalise CHECKING UP on your friends abroad
 
-Mbogi, kama uko Majuu na huna dash cam kwa ndai, you're simply gambling with your life. Dash cam ni silent witness wako ngori ikitokea.
+I mean genuine check ups not those fake check ups before uombe pesa. Kila time unaona tu success stories za kenyans abroad and little about their struggles.
 
-> **Community Insight:** While some community members advise that You’re right.  There’s an insurance scam inaitwa reverse hit maneuver, where the car in front backs into your car and claims you hit them, so that they can claim damages from your insurance. Dashcam footage is the savior. Kaa rada.  Nearer home, sometimes the southern bypass has goons attacking motorists. Such footage can also help the police apprehend the criminals., others highlight that This sub is only in Swahili??
+> **Community Insight:** The community expresses frustration over the transactional nature of relationships with Kenyans abroad, where genuine concern is often replaced by financial requests. This trend fosters isolation and silence among those who have moved, as their attempts at connection are frequently misinterpreted or met with demands for assistance.
 
-**Engagement:** 🔼 99 | 💬 11 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t8b8gt/dash_cam_inaweza_save_life_yako_majuu/)
+**Engagement:** 🔼 144 | 💬 26 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sgizkw/normalise_checking_up_on_your_friends_abroad/)
 
-### Trust Issues: Not Every Kenyan Majuu is Your Brother/Sister!
+### Why I never remove my KE bracelet
 
-I've heard way too many betrayal stories huku Majuu so here's my unsolicited advice. When you move Majuu, the urge to connect with fellow Kenyans is strong.
+First time flight was an international flight. Niko exited and anxious pale JKIA nikienda kuchunga Ngombe pale yuwes.
 
-> **Community Insight:** The consensus among top contributors is to Niliona IQ Watson akisema he doesn't interact with Kenyans in the Yues na akipatana nawao he has to shower to wash them off😂 whereas others suggest Kwanza kule kwa 🎺 Kenyans there can show you dust! Idk what changes but they can be pretty bad folks! and Even your blood brother and sister may not have your best interest at heart.
+> **Community Insight:** The bracelet serves as an inseparable emblem of national identity and a vital social connector for Kenyans navigating life and labor abroad. It functions as both a symbolic "GPS" for locating fellow citizens and a non-negotiable personal fixture that wearers refuse to remove even during medical emergencies.
 
-**Engagement:** 🔼 43 | 💬 10 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tekc5k/trust_issues_not_every_kenyan_majuu_is_your/)
+**Engagement:** 🔼 60 | 💬 16 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sxwbdg/why_i_never_remove_my_ke_bracelet/)
 
-### Jumbo jet scam sharp boys
+### How evil can these agents be?
 
-So today I've seen the scam going around jumbo jet from Nairobi to Mombasa at ksh 999 😂😂 before the devil akutempt ununue kuwa careful angalia hio site 😂 there's no jumbo jet site ending with a .vercel domain😂 so whatever you are seeing on those platforms e.g tiktok and IG jua Mulot boys wako...
+Jana Musalia Mudavadi presented report in parliament ikionyesha kuna 14 kenyans jailed in Thailand juu ya false papers. One of them ni 20y/o Antony Mwangi.
 
-> **Community Insight:** The consensus among top contributors is to they steal little and from many whereas others suggest !gif(giphy|MZSBHPaa0Y7FMelPtN) and Rent must be paid it's due tomorrow,,,they are not good 😅🤣.
+> **Community Insight:** The coldest story ever told...How could you be so heartless.
 
-**Engagement:** 🔼 36 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t3frhm/jumbo_jet_scam_sharp_boys/)
+**Engagement:** 🔼 33 | 💬 18 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1sa965c/how_evil_can_these_agents_be/)
 
-### Solving Captchas for Money Ni Mwosho. Don't Fall for the Trap!
+### Status-Signaling: The Psychology of "Fake" Soft Life
 
-Wakuu, I need to warn you about these passive income mirages online. Watu wengi sana wana-fall for sites (kama 2Captcha) promising you can make real money just by solving Captchas all day.
+Kanairo is currently suffering from a Status-Signaling Epidemic. Hizi stori za sijui "Bibi kujiachilia" ama "Subaru Boys" ni symptoms tu za Relative Deprivation Syndrome.
 
-> **Community Insight:** The consensus among top contributors is to I used to do this captchas in 2023, they really paid but ata heri punda... it's alot of work to even hit $1000. For real freelance work they this site if you have a skill Contra(https://on.contra.com/Kgg7GL) whereas others suggest Hawa ndio sharp boys wa Majuu. and Yeah I know this trick. This is used by developers,you were helping them train their Ai models.
+> **Community Insight:** While serving your time in Nairobi, you may frequently feel the urge to make appearances.
 
-**Engagement:** 🔼 18 | 💬 7 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1tf2f4i/solving_captchas_for_money_ni_mwosho_dont_fall/)
+**Engagement:** 🔼 31 | 💬 14 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1s9q9nr/statussignaling_the_psychology_of_fake_soft_life/)
 
-### Leteni Muchene!
+---
 
-Wakuu, tumeskia kilio chenu. Kuskia story za visas na remote work kila saa inachokesha.
+## General Scams & Warnings
 
-> **Community Insight:** The community emphasizes that !gif(giphy|1Zbeweu52ZaQE).
+### Your next stop after your agent 'Kukupanga'
 
-**Engagement:** 🔼 6 | 💬 3 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1t2bscz/leteni_muchene/)
+Earlier hii mwaka Ahmed Eltayeb, a Sudanese national alikuwa arrested na a forged UK residence permit. Iman Dib, akakuwa arrested with a forged Bosnia and Herzegovina.
 
-<details>
-<summary><b>📚 View Additional Threads on Cybercrime & General Scams (3 posts)</b></summary>
+> **Community Insight:** The community is urging heightened vigilance and seeking practical solutions as disillusionment grows over Kenya’s increasingly challenging economic landscape. Participants are actively calling for reliable agency recommendations to navigate these hardships safely.
 
-<ul>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1tbtokg/australia/">Australia</a> (🔼 5 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1tdjqtk/weekly_soko_hustle_leta_jobs_sales_na_biashara/">Weekly Soko &amp; Hustle: Leta Jobs, Sales na Biashara Hapa!</a> (🔼 3 | 💬 undefined)</li>
-<li><a href="https://www.reddit.com/r/Majuu254/comments/1t75bny/is_looking_for_a_job_through_agents_legit/">Is looking for a job through agents legit?</a> (🔼 3 | 💬 undefined)</li>
-</ul>
-</details>
+**Engagement:** 🔼 39 | 💬 5 — [**Read the full discussion here.**](https://www.reddit.com/r/Majuu254/comments/1stk4wr/your_next_stop_after_your_agent_kukupanga/)
 
 ---
 
