@@ -8,6 +8,8 @@ Welcome to the **Majuu254 Magazine**—your ultimate, community-driven guide to 
 
 Whether you're looking for your ticket out, trying to secure the bag remotely, or already navigating the complexities of the diaspora, this guide has something for you.
 
+📥 **[Download the Full Magazine as PDF](majuu-magazine.pdf)**
+
 Dive into our chapters below, discover the key takeaways from real experiences, and join the conversation on Reddit!
 
 ## Featured Chapters
@@ -26,6 +28,7 @@ Thriving, not just surviving. From protecting your hard-earned cash and real est
 
 ### [Chapter 5: Scam Alerts](scam-alerts.md)
 Stay woke. A sobering look at the traps waiting for the desperate—from fake job offers leading to the Russian frontlines to human trafficking rings in Southeast Asia. Read these before you pack your bags.
+
 
 
 
