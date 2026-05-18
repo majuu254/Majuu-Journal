@@ -3,4 +3,4 @@ theme: jekyll-theme-minimal
 # Majuu Journal Sidebar Configuration
 title: '# MAJUU JOURNAL'
 description: |
-  Verified Blueprints for the Global Grind.
+  Verified Blueprints for the Global Grind.<br><br><img src='images/left_panel.png' alt='Majuu Journal Cover' style='width:100%; border-radius: 5px; box-shadow: 0 4px 8px rgba(0,0,0,0.2);'>
