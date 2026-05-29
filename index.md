@@ -2,13 +2,15 @@
 
 # The Majuu254 Magazine
 
-**Publication Date: May 2026**
+**Publication Date: June 2026**
 
 Welcome to the **Majuu254 Magazine**—your ultimate, community-driven guide to navigating life, work, and opportunities abroad and online. We’ve curated the most valuable stories, hacks, and warnings shared by Kenyans out there grinding, and packaged them into an engaging, easy-to-read format.
 
 Whether you're looking for your ticket out, trying to secure the bag remotely, or already navigating the complexities of the diaspora, this guide has something for you.
 
 📥 **[Download the Full Magazine as PDF](majuu-magazine.pdf)**
+
+🚀 **[Join 7,000+ members on Reddit (r/Majuu254)](https://www.reddit.com/r/Majuu254)**
 
 Dive into our chapters below, discover the key takeaways from real experiences, and join the conversation on Reddit!
 
